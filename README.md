@@ -1,2 +1,2 @@
-Cats and dogs. 
-Cows and goats
+Cats and wolves. 
+Cows and hens.
